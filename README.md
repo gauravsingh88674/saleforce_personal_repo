@@ -1,2 +1,2 @@
 # My first repo
-Fuck you gaurav!!! :P :D hahahaha!!!
+Fuck you gaurav!!! :stuck_out_tongue_winking_eye: :smile: hahahaha!!!
